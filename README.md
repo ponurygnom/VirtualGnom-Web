@@ -14,3 +14,6 @@ A: i do not like weebs
 Q?: But Gnom, weebs are sometimes decent people!
 
 A: i do not like you
+
+
+there probably are some copyrights to this i just don't know what they are
